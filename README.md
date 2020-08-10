@@ -1,2 +1,4 @@
 # fantastic-octo-waddle
-New on programing
+Hello guys 
+i am divyansh who started the carrer in programing language 
+Qhich programing language should i learn 
